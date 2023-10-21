@@ -17,7 +17,7 @@ NFT Strike is an innovative platform that merges the gaming industry with blockc
 In summary, NFT Strike is a revolutionary platform that combines the incredible capabilities of blockchain technology with the captivating world of gaming, making it appealing to both crypto enthusiasts and Counter-Strike fans.
 
 # From Nostalgia to Next-Gen
-<a href="https://nft-strike.com"><img src="https://i.ibb.co/Sx1FxsH/image.png" alt="image" border="0"></a>
+<a href="https://nft-strike.com"><img src="https://i.ibb.co/51BcQ1H/photo-2023-10-15-23-18-05.jpg" alt="photo-2023-10-15-23-18-05" border="0"></a>
 
 Participants in NFT Strike can immerse themselves in a familiar atmosphere thanks to game servers built on the iconic Counter-Strike 1.6. This integration brings a sense of nostalgia and comfort to players who have fond memories of the classic game.
 
