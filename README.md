@@ -1,6 +1,6 @@
 # Next Stage in the Evolution of Gaming: NFT Strike — When Crypto Meets Counter-Strike
 
-<img src="https://nft-strike.com/image.png" alt="image" border="0">
+[url=https://ibb.co/42VXf35][img]https://i.ibb.co/68WTZLf/image.png[/img][/url]
 
 As blockchain technology permeates the gaming industry, we find ourselves at the threshold of a new era - the era of P2E, NFT gaming. In this article, we will delve into the exhilarating realm of NFT Strike, a distinctive platform that harmoniously blends familiar elements from Counter-Strike with cutting-edge blockchain technologies.
 
